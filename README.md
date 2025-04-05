@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning coding, math, language, arts, and everything i learned in school
 - 💞️ I’m looking to collaborate in the fields of arts and computer science
 - 📫 How to reach me? you can text me from here, maybe?
-- 😄 Pronouns: her peaceful and kind
+- 😄 Pronouns: her peaceful and kind 😄
 - ⚡ Fun fact: shy, quiet, loves nature, and... i don't know
 
 <!---
